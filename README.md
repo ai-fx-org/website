@@ -1,1 +1,1 @@
-# my-hight-fashion-website
+# my-high-fashion-website
